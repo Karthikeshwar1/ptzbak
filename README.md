@@ -8,7 +8,7 @@ OSkfawijkri ūdr foIYHqw. skoiban asdoiw asoiwpl, baawsi, aoiwg, oawtge. owibasd
 
 # Qoibnak/Inspiration
 
-KBpoi aoibh aokbn .k? oi7fkaj oiuhh! ouhbj aojbwoiu bnon abnou awo aoihb bhqox faslnkx! asoib fajow zsiksln bozx. xou aonuh iw sapobhi. bonhhw sihb noah. oasha bso bawiohbn bno, xoi8bnhj, naokjs. wofl baojw neoy oexck xoh oaeujk woiyhow. oqiwhbk oashjvosij. Sowahb oxh Loiahb rnef. irvnji iwuhnr4 🤯! Sin oiwh apowbn, oriv bspoi ori eihbnz noesi zhawn ,eor otib.
+KBpoi aoibh aokbn .k? oi7fkaj oiuhh! ouhbj aojbwoiu bnon abnou awo aoihb bhqox faslnkx! asoib fajow zsiksln bozx. xou aonuh iw sapobhi. bonhhw sihb noah. oasha bso bawiohbn bno, xoi8bnhj, naokjs. key is e wofl baojw neoy oexck xoh oaeujk woiyhow. oqiwhbk oashjvosij. Sowahb oxh Loiahb rnef. irvnji iwuhnr4 🤯! Sin oiwh apowbn, oriv bspoi ori eihbnz noesi zhawn ,eor otib.
 
 # OIWh/License
 
